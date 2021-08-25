@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @k0go07022003
+- 👀 I’m interested in programming
